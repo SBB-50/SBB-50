@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @SBB-50
 - 👀 I’m interested in code stuff, music stuff
-- 🌱 I’m currently learning kali linux and hacking 
 - 💞️ I’m looking to collaborate on cool shit
 - 📫 Discord: ultimateguy33#5401 or #3333 if I have nitro
 
