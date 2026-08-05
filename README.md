@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SBB-50
 - 👀 I’m interested in code stuff, music stuff
 - 💞️ I’m looking to collaborate on cool shit
-- 📫 Discord: ultimateguy33#5401 or #3333 if I have nitro
+- 📫 Discord: realshit113
 
 <!---
 SBB-50/SBB-50 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
